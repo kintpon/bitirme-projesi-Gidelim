@@ -1,1 +1,1 @@
-tugra kubra yanki
+tugra kubra yanki tg
